@@ -1,4 +1,4 @@
-
+Get ahead in king legacy with top Scripts for king legacy, featuring fly and one-hit kill. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
